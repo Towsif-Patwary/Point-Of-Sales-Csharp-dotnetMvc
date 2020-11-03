@@ -1,4 +1,4 @@
-PLEASE FIND THIS PROJECT VIDEO ON YOUTUBE (Link below):
+PLEASE FIND THIS PROJECT VIDEO ON YOUTUBE (Link is given here):
 Point Of Sales: https://www.youtube.com/watch?v=dQ_YTp080cI
 
 
